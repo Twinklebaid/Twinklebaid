@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Twinklebaid
+- 👀 I’m interested in data analyst, business analyst,reseach analyst role. 
+- 🌱 I’m currently taking Data Analyst course from Skillovilla.
+- 📫 How to reach me baid.twinkle6@gmail.com
+- 😄 Pronouns: she/her
+- 
